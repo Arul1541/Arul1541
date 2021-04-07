@@ -1,7 +1,7 @@
 -  Hi, I’m @Arul1541
 -  I’m interested in coding / cybersecurity
 -  I’m currently learning computer science engineering
--  I’m looking for an job or internships 
+-  I’m looking for a job or internships 
 -  Reach me by arulkumaran484@gmail.com
 
 
